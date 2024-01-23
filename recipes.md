@@ -59,6 +59,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 90% love and care
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -79,7 +80,7 @@ Ingredients:
 - 4 hamburger buns
 - Lettuce
 - Tomato
-- Mayonnaise
+- Japanese Mayonnaise
 
 Instructions:
 1. Preheat grill to medium-high heat.
